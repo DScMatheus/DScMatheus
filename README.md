@@ -15,7 +15,7 @@
 
 - 📫 Você pode me contatar pelo email **avmatheuss@gmail.com**
 
-- 📄 Aqui está uma cópia do meu currículo [[https://drive.google.com/drive/folders/1hkKd2GuypMcCEgVHdyzlrJyGEtmsxwxA?usp=drive_link](https://drive.google.com/drive/folders/1hkKd2GuypMcCEgVHdyzlrJyGEtmsxwxA?usp=drive_link)](https://docs.google.com/document/d/1IVNnS_LnLKaRNTtB2TJtQn7q65lfX_WS8i3Hqpj2WcM/edit?usp=sharing)
+- 📄 Aqui está uma cópia do meu currículo [[https://drive.google.com/drive/folders/1hkKd2GuypMcCEgVHdyzlrJyGEtmsxwxA?usp=drive_link]
 
 - ⚡ Fun fact **Apesar de ter mudado de carreira, sou apaixonado por aviação.**
 
