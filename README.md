@@ -3,7 +3,7 @@
 
 - 🔭 Atualmente, eu estou trabalhando em projetos como **estudos de caso e exercícios.**
 
-- 🌱 Atualmente eu estou estudando **Python e DAX**
+- 🌱 Atualmente, estou estudando **Python e DAX**
 
 - 👯 Eu adoraria participar de quaisquer assuntos que envolvam **análise de dados e ferramentas de dados.**
 
